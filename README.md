@@ -21,8 +21,7 @@
 ---
 
 ## 📫 Let's Connect!
-- 🔗 [LinkedIn](https://www.linkedin.com/in/satyam4561)
-- 📧 Email: your-email@example.com
+- 📧 Email: sagittariusgalgotias@gmial.com
 
 ---
 
