@@ -19,7 +19,7 @@
 ---
 
 ## 📫 Let's Connect!
-- 📧 Email: sagittariusgalgotias@gmial.com
+- 📧 Email: sagittariusgalgotias@gmail.com
 
 ---
 
