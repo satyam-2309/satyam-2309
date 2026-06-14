@@ -19,6 +19,7 @@
 ---
 
 ## 📫 Let's Connect!
+📧 Email: satyam70686@gmail.com
 - 📧 Email: sagittariusgalgotias@gmail.com
 
 ---
